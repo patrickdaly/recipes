@@ -6,7 +6,7 @@ categories: entree
 ---
 
 ## Ingredients
-- Pizza dough
+- Pizza dough (make from scratch or buy if you are a wuss)
 - Italian red sauce
 - Mozarella cheese
 - Bell Peppers
